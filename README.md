@@ -2,7 +2,7 @@
 
 <h1>hey hey its me da funny puppy hazel hasnogame</h1>
 
-yooooo whassaaaaaaap its tha developer developer developer developer of the vaporware VN `INDOCTRINATED`
+yooooo whassaaaaaaap its tha developer developer developer developer of the vaporware VN `INDOCTRINATED` and the definitely being worked on rpg `HEXXXED`
 
 i do a lot of shit like gamedev, music, art, hop over to my site to learn more about me
 
